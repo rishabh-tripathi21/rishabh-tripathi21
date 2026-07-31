@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am btech 3rd year student<br>in cse speciallization in ai<br>
+i am btech 4th year student<br>in cse speciallization in ai<br>
 
 
 ## 🌐 Socials:
